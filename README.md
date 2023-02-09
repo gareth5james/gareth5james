@@ -1,1 +1,1 @@
-- 🌱 I’m currently learning with Northcoders on their Bootcamp
+- 🌱 I’m currently looking for my first role after completing the Northcoders bootcamp.
