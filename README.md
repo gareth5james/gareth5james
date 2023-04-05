@@ -1,1 +1,1 @@
-- 🌱 I’m currently looking for my first role after completing the Northcoders bootcamp.
+- 🌱 Application Support Engineer.
