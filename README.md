@@ -1,1 +1,1 @@
-- 🌱 Senior Technical Services Engineer.
+- 🌱 Technical Services Lead
